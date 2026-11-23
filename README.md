@@ -1,1 +1,1 @@
-# HTML_marathon
+HTML_marathonin this attempt I wanna make a portfolio for the students near me which needs the portfolio in their placemnts and I am trying to do that by using my skills and using ai as my assistant and this is gonna fund my subscription for the ai models I need and also I am gonna learn while doing this projects for today a very simple html page with some css with it and check for myself about it 
